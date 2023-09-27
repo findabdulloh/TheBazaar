@@ -1,1 +1,1 @@
-    <<< THE BAZAAR >>>
+THE BAZAAR
